@@ -32,7 +32,7 @@ So I contacted @ChadLawsonPiano (and his agent) and began the process of transfe
 
 Now I had to come up with a new one.
 
-Well... I am a geek. And I've always considered myself 'quixotic' *(big fan of "Man of LaMancha",BTW), so the choice was clear.
+Well... I am a geek. And I've always considered myself 'quixotic' *(big fan of "Man of LaMancha",BTW)*, so the choice was clear.
 
 I am ***GeekQuixotic***.
 
