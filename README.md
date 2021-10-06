@@ -2,7 +2,7 @@
 
 ## Why Geek Quixotic?
 
-As social media started being a *thing* in 2008, I managed to get the custom URL of **ChadLawson** on Facebook, Twitter, Instagram, Google+, etc. But I was unable to get [chadlawson.com]() as it was in use by a pianist in New York.
+As social media started being a *thing* in 2008, I managed to get the custom URL of **ChadLawson** on Facebook, Twitter, Instagram, Google+, etc. But I was unable to get [chadlawson.com]() as it was *(and is)* in use by a pianist in New York.
 
 Over the years, I would get erroneously tagged in a photo or post. Often along the lines of,
 
